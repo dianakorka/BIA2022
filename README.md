@@ -15,4 +15,4 @@ If you have questions or face problems you cannot resolve during the labs, do no
 
 We are looking forward to a great semester with you.
 
-Your BIA-TAs
+Student assistant Diana Korka
